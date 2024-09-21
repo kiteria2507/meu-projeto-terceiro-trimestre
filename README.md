@@ -19,7 +19,7 @@
 <body>
     
 </body> Bom aqui no meu salão mexemos, com cabelo cacheado e cabelo ondulado
- fazemos o famoso morena iluminada que muitas cabeleleiras, não conseguem fazer certo, mas aqui fazemos igual ao seu Gosto<body>
+ fazemos o famoso morena iluminada que muitas cabeleleiras, não conseguem fazer certo, mas aqui fazemos igual ao seu Gosto!<body>
     <main>
     </main>
     <footer>
